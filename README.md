@@ -6,7 +6,3 @@ lksdkjfñksadjfyhjg
 lasdfñljsajlk
 sadfoj
 ñadsfjñasdjfklñj
-asdjkjdkajfñlk
-asdfp´jasdfj
-asdf´jkasd´fjk
-ásdokjifkasjdfñlkjasd
